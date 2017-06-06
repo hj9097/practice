@@ -1,1 +1,9 @@
 practice
+i
+want
+to
+get
+B
+grade
+in 
+과소사
